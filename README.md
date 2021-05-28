@@ -1,0 +1,1 @@
+# bing_picture_CN_version
